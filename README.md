@@ -2,4 +2,5 @@
 
 ![Course Thumbnail](/thumb.png)
 
-⌢爠獩慨桢•਍
+Made by ~Rishabh
+
